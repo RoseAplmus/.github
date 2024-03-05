@@ -1,2 +1,2 @@
-# RUI 🧙
+# [RUI](https://github.com/RoseAplmus) 🧙
 
